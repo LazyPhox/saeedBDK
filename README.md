@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @saeedBDK
+- 👋 Hi, I’m @Saeed
 - 👀 I’m interested in learning new stuff related to tech.
 - 🌱 I’m currently learning graphic design
 - 💞️ I’m looking to collaborate on logo design/brand identity design projects
